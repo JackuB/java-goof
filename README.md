@@ -1,4 +1,4 @@
-## Java Goof
+## Java Goofy
 
 ![](https://i.kym-cdn.com/entries/icons/original/000/000/024/iheardulikemudkips.jpg)
 
